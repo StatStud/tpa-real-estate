@@ -21,7 +21,7 @@ cover:
 
 ### Introduction
 
-Start here
+Start here.
 
 #### Summary
 
