@@ -21,15 +21,26 @@ cover:
 
 ### Introduction
 
-Start here
-
 #### Summary
+
+
+The six core elements for real estate investing are:
+1. time
+2. effort
+3. risk
+4. service
+5. market conditions
+6. profit
+
+Profit should come from the purchasing of a home at a discount, rather than appreciation.
 
 #### Chapter Details
 
 ### Chapter 1: The Crucial Mental Shift: Overcoming America's Broken Financial Paradigm
 
 #### Summary
+
+
 
 #### Chapter Details
 
