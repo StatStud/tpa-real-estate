@@ -40,6 +40,22 @@ Profit should come from the purchasing of a home at a discount, rather than appr
 
 #### Summary
 
+Before pursing the Strait Path, we **get** to change our mindset from an accumulator mindset to an investor mindset.
+
+Why should we change our mindset?
+
+The accumulator mindset focuses on safety, stability, and avoiding risks. They do this by relying on one source of income and placing long, slow, "safe" bets.
+
+The investor mindset focuses on generating cashflow. Hard cash that increases overall income, rather than fighting to maintain a current lifestyle up until retirement.
+
+Investors are problem solvers who love learning through practical experience.
+
+Because they are so resourceful from the habit of experience, they have a habit of seeing how to make the most out of anything, hence their proclivity to recognize opportunity from anywhere.
+
+The two core beliefs that enable an investor mindset are always choosing the right attitude at the beginning of any endeavor, and by taking action now, regardless if it's perfect.
+
+The end result of someone with an investor mindset is someone who gets to choose when they want to work, how they want to spend their time, and ultimately, confidence and enthusiasm that comes from acton.
+
 #### Chapter Details
 
 The goal of investing is to have cash flow--you are free when you have assets that put money into your pocket.
@@ -87,8 +103,43 @@ Accumulators seek retirement; the investors seek cashflow.
 
 Investors operate in environments that are volatile, risky, and negative.
 
+To facilitate the shift from accumulator to investor, Kris recommends two simple techniques:
+1. Embracing the possibility attitude
+2. Living the law of now
 
+(1) is simply having control of your thoughts by choosing to see the positives. Positive people tend to attract more of what they want.
 
+I personally struggled with positivity; the best remedy I found was Meditation + CBT. If you add a healthy, consistent routine of healthy eating and exercising, it will make positive thinking so much easier.
+
+> **You will become wealthy to the degree that you can see abundance of options**
+
+Personally, I used to think only dumb people were positive--but then I started seeing the returns from their lives, and I came to realize that the smartest thing I can do is to be positive and act dumb--or more like a lifelong student who has a veracious curiosity.
+
+> It is our attitude at the beginning of a test which, more than anything else, determines it's successful outcome.
+
+(2) is simply taking action. The world rewards action, and places special preference to imperfect action, because the feedback in quick and honest.
+
+Better to make take action and fail, than to wait until it's perfect timing to act without any mistakes.
+
+Why?
+
+> **we learn more from bad decisions than from indecision**
+
+Just as Alex Hormozi said, "80% of the work is simply showing up, but it's that *start* that most people delay.
+
+Blue Bill thinking is believe that good things come to us if we wait--a more accurate and realistic core belief is that we get what we act for--even bad decisions help give us clarity on the next step
+
+> Those who are afraid of making decisions are those who inevitably make the worst decisions because they have little *practical* experience to draw upon.
+
+Living in the law of now requires **faith**
+
+If you make mistakes, it will be mistakes born out of a willingness and desire to act when being complacent and conformant is easy.
+
+The fundamental reality of the accumulator mindset is that it doesn't practically, realistically, and fundamentally, actually work in real life, because it based on theoretical purity on how the world *should* work
+
+Wouldn't it be nice to stuff money into a retirement account, and never think of it again, and wake up 5 years from now a billionaire?
+
+That's Blue Bill thinking Neo.
 
 ### Chapter 2: Overview of the Strait Path System
 
