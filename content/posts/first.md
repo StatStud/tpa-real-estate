@@ -147,6 +147,54 @@ That's Blue Bill thinking Neo.
 
 #### Chapter Details
 
+The Strait Path consists of four core phases:
+1. plan
+    - Identify all assets and resources (even those which may be overlooked)
+    - Create a clear and detailed 10-year plan
+    - Stay disciplined by sticking with the system and reinvesting profits
+2. find
+    - **Only** buy single-family with *at least* 3 bedrooms and *at least* 15% equity
+    - Always purchase below the the median home price for any given area
+        - Otherwise, we dramatically increase the risk of losing equity from market volatility, which makes reselling much harder
+    - Only buy homes in livable condition (duh)
+        - This means avoid fix-and-flips
+        - Ugly, but **livable** houses often produce the most cash flow
+    - Speed to buy is important for great deals; be prepared to act immediately if above criteria is met
+        - Getting prequalified helps, **before** even looking at properties
+    - Find deals on the MLS
+    - No BS, straightforward approach when negotiating
+3. purchase
+
+4. serve
+
+I was quite surprised that Kris only buys single family homes, and avoids townhomes, condos, duplexes, etc.
+
+So this chapter also mentioned seller financing, and it's basically when you avoid the bank to instead make terms with the seller.
+
+According to ChatGPT, here are some of the reasons why sellers may be incentivized to adhere to seller financing:
+1. Faster Sale
+    -  the seller may be able to attract more potential buyers, including those who may not be able to obtain traditional financing. 
+    - This can result in a faster sale, which may be appealing to a seller who wants to move on quickly
+2. Higher sale price
+    - his is because the financing option may make the property more attractive to buyers who are willing to pay a premium for the convenience of seller financing
+3. Steady income stream
+    - Especially appealing for sellers who are looking to generate income from their property without having to manage it themselves
+4. Tax benefits
+    - One example: the seller may be able to spread out their capital gains tax liability over time, rather than paying it all at once
+5. Asset protection
+    - Seller is able to take back the property if the buyer defaults on the payments
+
+You may be thinking: Why would a seller choose the monthly payments of seller-financing, when they can get paid as a lump sum from conventional loans?
+
+While some sellers may prefer a lump sum payment from a conventional loan, there are situations where a steady income stream from seller financing can be beneficial. Here are some possible reasons why a seller may prefer monthly payments over a lump sum payment:
+1. The seller is an accumulator, and prefers steady, reliable payouts
+2. Interest Income
+3. Higher selling price
+4. Flexibility: flexibility in terms of the down payment, interest rate, and repayment period
+5. Lower upfront costs: avoid mortgage origination fee or appraisal fee
+
+
+
 ### Chapter 3: The Six Elements of Successful Investing: Various Methods Compared and Contrasted
 
 #### Summary
