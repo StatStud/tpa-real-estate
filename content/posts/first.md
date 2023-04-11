@@ -145,7 +145,7 @@ That's Blue Bill thinking Neo.
 
 #### Summary
 
-The Strait path is a 10-year, rent-to-own system that focuses on 3-bedroom single family homes that are sold for less than the median home price for that area.
+The Strait path is a 10-year plan to build sustainable cashflow through rent-to-own  3-bedroom single family homes that are sold for less than the median home price for that area.
 
 #### Chapter Details
 
@@ -210,11 +210,54 @@ Here are the advantages of rent-to-own over standard renting:
 
 These four bullet points are what increase monthly profits by $300 to $800 compared to standard renting.
 
+
 ### Chapter 3: The Six Elements of Successful Investing: Various Methods Compared and Contrasted
 
 #### Summary
 
 #### Chapter Details
+
+We are reminded of the six core elements for real estate investing:
+1. time
+    - Don't make real estate a 2nd job that pays $12/hr
+    - value your time; it's your most important asset
+2. effort
+    - Related to time; will you need to work excessive hours, just for a net return of $12/hr?
+3. risk
+    - No amount of money is worth the fear, anxiety, and uncertainty
+4. service
+    - Service to others is rent we pay for our room in heaven
+    - Whatever we seek in the form of rewards, we must first earn in the form of service
+5. market conditions
+    - The Strait Path **DOES NOT** depend on appreciation to be profitable; it's simply a nice bonus
+6. profit
+    - The Strait Path seeks sustainable, consistent, and predictable profits
+
+There are 5 core profit centers that makes the Strait Path excellent for sustainable profits:
+1. Discount Equity
+    - This is when we buy a home that's less than the median home value within the area
+    - At least 15% equity is desired 
+2. Cash flow
+    - Higher monthly payments for occupying a home
+3. Down Payment
+    - Averages to $5,000 down per house
+4. Appreciation
+    - Not something we aim for, but a nice bonus
+5. Tax Benefits
+    - Deducting mortgage interest from taxes
+
+
+![](/straitpath4.jpeg)
+
+We then review some of the other types of real estate investing, their pros and cons, as evaluated using the six core elements for real estate investing are (see beginning of introduction)
+
+Personally, some of the items that stood out to me were:
+- Compared to rentals, the Strait Path **improve** debt-to-income ratio because of the more generous down pavement AND the higher monthly rent.
+- Fix and Flips are basically full-time jobs that could end up paying out $12/hr because the final payout is dependent on the market condition and the appraisal approval (hoping to get +$80K on a property might be a big jump for banks to handle)
+
+> What sets the Strait Path apart from most other investing forms is one key word: **Sustainability**
+
+
 
 ### Chapter 4: Creating Your Portfolio Game Plan
 
