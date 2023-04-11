@@ -145,6 +145,8 @@ That's Blue Bill thinking Neo.
 
 #### Summary
 
+The Strait path is a rent-to-own system that focuses on 3-bedroom single houses that are sold for less than the median home price for that area.
+
 #### Chapter Details
 
 The Strait Path consists of four core phases:
@@ -193,7 +195,20 @@ While some sellers may prefer a lump sum payment from a conventional loan, there
 4. Flexibility: flexibility in terms of the down payment, interest rate, and repayment period
 5. Lower upfront costs: avoid mortgage origination fee or appraisal fee
 
+Kris mentions the **Sandwich Financing** technique:
+1. Secure property under favorable **seller financing** terms
+2. On my end, finance the property to another buyer with the **rent-to-own** system
 
+The goal of this particular rent-to-own system is to **deliberately** do everything in our power to ensure the tenants are able to purchase the home.
+
+Here are the advantages of rent-to-own over standard renting:
+1. Tenants take better care of the property
+2. You collect a larger down payment
+3. You don't pay property management fees
+4. You never have to pay for repairs, because tenants are responsible for maintaining the property
+5. Lowers debt-to-income ratio compared to rentals, thereby allowing you to purchase more properties
+
+These four bullet points are what increase monthly profits by $300 to $800 compared to standard renting.
 
 ### Chapter 3: The Six Elements of Successful Investing: Various Methods Compared and Contrasted
 
