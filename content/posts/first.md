@@ -145,7 +145,7 @@ That's Blue Bill thinking Neo.
 
 #### Summary
 
-The Strait path is a rent-to-own system that focuses on 3-bedroom single houses that are sold for less than the median home price for that area.
+The Strait path is a 10-year, rent-to-own system that focuses on 3-bedroom single family homes that are sold for less than the median home price for that area.
 
 #### Chapter Details
 
