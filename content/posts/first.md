@@ -215,6 +215,10 @@ These four bullet points are what increase monthly profits by $300 to $800 compa
 
 #### Summary
 
+What sets the Strait Path apart from most other investing forms is one key word: **Sustainability**
+
+Compared with other real estate investment strategies, the Strait Path optimizes for sustained profits.
+
 #### Chapter Details
 
 We are reminded of the six core elements for real estate investing:
